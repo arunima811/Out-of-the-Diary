@@ -11,8 +11,8 @@ There is another type amongst humans, beyond male and female and anything define
 Cheers!
 
 -----------------------------------------------------------------------------------------------------------------------------------------------------------------------
-* Pun intended
-** No pun intended
+\* Pun intended<br />
+\** No pun intended
 
 References
 1. Shiv Nadar University lets you chose courses besides your major from Natural Sciences, Humanities, Tech, Design and even Art courses.<br />
