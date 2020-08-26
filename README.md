@@ -32,7 +32,7 @@ References
 
 3. Genetics Pioneer
 
-4. The first coder, not not regarded as the Mother of Computers
+4. The first coder, not regarded as the Mother of Computers
 
 5. The one in Physics(a science women don’t understand*)
 
@@ -42,7 +42,7 @@ References
 
 8. Source: websites and every straight boy
 
-9. A quote my dearest and smartest Ms. Poddar
+9. A quote by dearest and smartest Ms. Poddar
 
 10. In reference to, them not being a typical man or a woman
 
